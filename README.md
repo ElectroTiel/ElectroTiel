@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ElectroTiel
-- 👀 I’m interested in rail infrastructure, the 'Rio' animated film franchise. I'm also a furry.
+- 👀 I’m interested in rail infrastructure and the 'Rio' animated film franchise. I'm also a furry.
 - 🌱 I’m currently learning 3D modelling
 - 💞️ I’m looking to collaborate on: (currently nothing)
 - 📫 How to reach me: Discord (electrotiel) or Telegram (t.me/ElectroTiel)
